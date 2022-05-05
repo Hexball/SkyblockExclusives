@@ -14,3 +14,6 @@ All Mining and Combat Features other mods have
 And much more features
 
 Our Team is very Active so Expect an update every few weeks
+
+Latest Update 5/4/22
+Update Prior 4/13/22
